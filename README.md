@@ -121,9 +121,9 @@ For questions or collaboration:
 
 Qasim Shafiq
 
-Email: your-email@example.com
+Email: qasimshafiq4369@gmail.com
 
-LinkedIn: linkedin.com/in/yourprofile
+LinkedIn: linkedin.com/in/qasim-shafiq
 
 Let me know if you want:
 
